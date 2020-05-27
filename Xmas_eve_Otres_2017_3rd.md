@@ -2,7 +2,6 @@ The kingfisher is sitting on a mound of dirt next to a coconut palm behind Hugo'
 He looks confused maybe or just taking a break from the rain.
 
 I wonder if my apartment is flooding.
-It probably is but we've already got everything off the ground and the whole floor slopes towards the drain in the bathroom so it's nothing to worry about.
 
 There used to be a river in between where that mound of dirt now is and the restaurant I'm sitting in.
 The landlord filled it in a week ago.
