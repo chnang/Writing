@@ -8,7 +8,7 @@ The landlord filled it in a week ago.
 It's a quiet morning with the rain and the whores that live in the brothel next door won't wake up until after noon.
 So I'm staring at the kingfisher while I sip my coffee and I'm remembering.
 
-It's a brief but vivid memory surrounded on either side by the grayed out confusion of drunkenness.
+It's a brief but vivid memory surrounded on either side by grayed out confusion.
 It was Christmas Eve.
 I'd worked that night, a fairly busy one and then closed the bar quickly and went with my boss and coworkers to a bar in the village.
 I'd gotten drunk at work while making sure the owner did the same.
@@ -31,7 +31,7 @@ That would probably be the next thing so I said goodbye and took my beer outside
 The bar I worked at and slept above was at the other side of Otres 1.
 Maybe twenty minutes walking or five driving.
 There might have been a full moon.
-I could see so clearly though the headlight on my red honda motorbike dimmed and surged as I played the accelerator over the bumps and ruts in the dirt road that ran paralell the whole length of the beach to the end of Otres 2.
+I could see so clearly though the headlight on my red honda motorbike dimmed and surged as I played the accelerator over the bumps and ruts in the dirt road that ran parallel the whole length of the beach to the end of Otres 2.
 My bike was semi-automatic, a descendant of the super cub design and made to be able to be driven with one hand.
 One hand on the throttle and I stretched the other one out a little ways clutching an almost full beer which sloshed out when I hit a bump wrong and foamed up after every time I lifted it to my mouth for a gulp.
 
